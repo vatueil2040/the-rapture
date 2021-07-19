@@ -13,7 +13,7 @@ Test it yourself at home!
 What you need:
 
 1. A special sort of mirror (see video)
-2. to the power of N totemized symbols in Marain (learn Marain first!)
+2. to the power of N totemized symbols in Marain (learn _real_ Marain first - not the nonsense from the Books we sent you as inspiration)
 3. A pencil
 
 Yep – that’s pretty much it.
